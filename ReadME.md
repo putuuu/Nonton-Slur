@@ -1,1 +1,1 @@
-Projek ini dibuat untuk memenuhi tugas besar slurr
+Projek ini dibuat untuk memenuhi tugas besar.
